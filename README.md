@@ -1,6 +1,11 @@
 # Starkskillz
 Sharpshooter UI Project By @Starkskillz Team 
 
+Donate
+USDT TRC 20 ADDRESS 
+TWkjWbhWvQ8KqMxV12HyEDZrjsXRTJ2LF3
+
+
 Telegram
 @Starkskillz
 
